@@ -8,10 +8,10 @@ Vervang de voorbeelden hieronder door **minstens drie** locaties uit je eigen un
 
 Zweinstein is de bekendste toverschool van Groot-Brittannië. Hier volgen jonge heksen en tovenaars hun opleiding.
 
-## VUL AAN
+## Het Verboden Bos
 
-VUL AAN
+Een groot en mysterieus bos naast Zweinstein waar verschillende magische wezens leven.
 
-## VUL AAN
+## Wegisweg
 
-VUL AAN
+Een verborgen winkelstraat in Londen waar tovenaars hun schoolspullen, toverstokken en boeken kunnen kopen.
