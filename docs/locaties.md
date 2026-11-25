@@ -4,9 +4,9 @@ De plaatsen waar dit universum zich afspeelt.
 
 Vervang de voorbeelden hieronder door **minstens drie** locaties uit je eigen universum, elk met een korte beschrijving van twee tot vier zinnen.
 
-## VUL AAN
+## Zweinstein
 
-VUL AAN: waar ligt deze plek, wie komt er, en waarom is ze belangrijk voor het verhaal?
+Zweinstein is de bekendste toverschool van Groot-Brittannië. Hier volgen jonge heksen en tovenaars hun opleiding.
 
 ## VUL AAN
 
